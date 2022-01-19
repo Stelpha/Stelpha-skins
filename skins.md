@@ -5,11 +5,11 @@
 {NEW SKINS}
 
 # [- Stelpha Suprimation V1.1 - CK](https://www.mediafire.com/file/e1tj428hmdqondo/-_Stelpha_Suprimation_V1.1_%255BCK%255D.osk/file)
-![](https://imgur.com/a/8uol0OL)
+![](https://osu.ppy.sh/ss/17470397/5ba4)
 
 
 # [- Stelpha Suprimation V1.1 - DT](https://www.mediafire.com/file/82m509zfcaeht6j/-_Stelpha_Suprimation_V1.1_%255BDT%255D.osk/file)
-![](https://imgur.com/a/m3Nk3me)
+![](https://osu.ppy.sh/ss/17470401/3548)
 
 ----------------------------------------------------------------------------------------------------------
 
