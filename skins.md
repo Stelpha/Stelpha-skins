@@ -12,7 +12,9 @@
 ![](https://osu.ppy.sh/ss/17470401/3548)
 
 ----------------------------------------------------------------------------------------------------------
+
 # [Cookiezi 26 vaxei cursor](https://www.dropbox.com/s/o1ty15jwgd72nye/cookiezi%2026%20vaxei%20cursor.osk?dl=0)
+![](https://osu.ppy.sh/ss/15066648/9d4d)
 
 
 # [# Jace 6.25 - WhiteCat](https://www.mediafire.com/file/m6s88josc48q19w/%23_Jace_6.25_-_WhiteCat.osk/file)
