@@ -17,10 +17,6 @@
 ![](https://osu.ppy.sh/ss/17522400/a784)
 
 
-# [# Jace 6.25 - WhiteCat](https://www.mediafire.com/file/m6s88josc48q19w/%23_Jace_6.25_-_WhiteCat.osk/file)
-![](https://osu.ppy.sh/ss/15066648/9d4d)
-
-
 # [Jace 6.25](https://www.mediafire.com/file/r4mclu4kgr600n7/Jace_6.25.osk/file)
 ![](https://osu.ppy.sh/ss/14953320/7994)
 
